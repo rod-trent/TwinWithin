@@ -2,7 +2,7 @@
 
 Welcome to the repository for Ethan Veritas: The Twin Within by <a href="https://amazon.com/author/rodtrent" target="_blank">Rod Trent</a>
 
-My fiction novel, Ethan Veritas: The Twin Within, is in the final stages of writing and will be available in paperback and Kindle/eBook on December 6, 2024. Amazon's Kindle Unlimited members will be able to read it for free.
+My fiction novel, Ethan Veritas: The Twin Within, is in the final stages of writing and will be available in paperback and Kindle/eBook on November 28, 2024. Amazon's Kindle Unlimited members will be able to read it for free.
 
 Available now for pre-order: https://amzn.to/3X7mEsP 
 

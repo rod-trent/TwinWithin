@@ -31,4 +31,4 @@ As the world teeters on the brink of subjugation to an ominous new intelligence,
 
 <br><br>
 
-<p align="center"><img src="https://github.com/rod-trent/TwinWithin/blob/main/TwinWithinSmallerJPG.png"></center></p>
+<p align="center"><img src="https://github.com/rod-trent/TwinWithin/blob/main/Images/TwinWithinSmallerJPG.png"></center></p>

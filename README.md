@@ -6,7 +6,7 @@ My fiction novel, Ethan Veritas: The Twin Within, is in the final stages of writ
 
 Available now for pre-order: https://amzn.to/3X7mEsP 
 
-A free sample first chapter is now available!  _coming_
+A free sample first chapter is now available! https://github.com/rod-trent/TwinWithin/blob/main/Free_Chapter/Twins_Chapter_1.pdf
 
 Check out the growing list of series images.
 
